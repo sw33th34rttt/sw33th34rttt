@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @sw33th34rttt
 - 🍒 I’m interested in Cookie-Run,Owl-House,Gravity Falls, Mouthwashing, Hazbin/Helluva!
 -  🌈I ADORE my Friends<3 
-- 💞️ I LOVEE my Bf<3 Im a sick-lovepuppy for Edward</3
+- 💞️ I LOVEE my Gf<3 Im a sick-lovepuppy for Blep</3
 - 🎂 Im 16:p(My Birthday is April, 2nd<3)
-- 😄 Pronouns: She/They/It/Fae
+- 😄 Pronouns: She/They/It/Pup
 - ⚡ Fun fact: Im a HUGE nerd</3 I'm Extremely good at Science
 
 <!---
